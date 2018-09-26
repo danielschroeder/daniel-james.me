@@ -1,1 +1,1 @@
-# danielschroeder.github.io
+# daniel-james.me
